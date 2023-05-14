@@ -17,8 +17,7 @@
 <div>
   
   apaixonado por tecnologia.❤️<br/>
-  estudando Analise & Desenvolvimento De Sistemas.📘🙏 
-
+  Cursando Analise e Desenvolvimento De Sistema.
 
 
 
